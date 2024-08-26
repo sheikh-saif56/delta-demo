@@ -1,2 +1,2 @@
 # delta-demo
-This is demo of Git and Github.
+Now i will fuck everyone in the github.
